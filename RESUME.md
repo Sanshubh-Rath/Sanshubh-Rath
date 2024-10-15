@@ -1,3 +1,3 @@
 Sanshubh Rath
-Data Science and Rath
+Data Science and Economics
 Expected Graduation : 2028
